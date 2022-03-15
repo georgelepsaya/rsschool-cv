@@ -4,7 +4,7 @@
 ### Contact information
 - Email: georgelepsaya@gmail.com
 - Telegram: @george_le
-
+- Phone: +79299605676
 
 ***
 ### About me
